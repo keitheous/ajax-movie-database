@@ -1,1 +1,1 @@
-I could not have done this without JB. It was 100% his effort.
+I could not have done this without JB. Thank you very much JB.
